@@ -1,1 +1,1 @@
-# mr_Jalolov
+# Tursunboy Jalolov
